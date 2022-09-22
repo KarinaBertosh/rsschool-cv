@@ -1,4 +1,4 @@
-# Karina Bertosh
+## Karina Bertosh
 1. Сontacts for communication:
 - Mail: cherrycake246@gmail.com
 - Phone Number: +375297065531
